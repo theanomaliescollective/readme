@@ -1,6 +1,3 @@
-f(x)= 2x+6.
+DANI YOU'RE MY TRUSTED ADULT 
 
-;-;
-
-
-,,,,,,,,,,,,
+IM SCARED
