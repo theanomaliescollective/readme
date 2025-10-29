@@ -1,2 +1,3 @@
-write in this, bagel
-dawg i was trying it cut me off for a second
+## F: DOZER - COF: KOOKOO, REAPER
+
+L get good
