@@ -1,13 +1,6 @@
 ## F: DOZER - COF: KOOKOO, REAPER
 
-assuming emoji was dani, hello dani :D
+<img width="709" height="481" alt="image" src="https://github.com/user-attachments/assets/45cfbdf8-ec39-4ed7-87f9-213657a39638" />
 
-👋
-
-guh ok
--
-dani, if u see this first ask bagel to forward Dozers pk
--
-bagel, if u see this first, forward the pk file for dozer 2 dani
--
--Reaps
+what the hell am i doing.
+-Dozer
