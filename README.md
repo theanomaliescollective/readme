@@ -1,4 +1,1 @@
-F: TWO TIME , COF: DOZER(KNOCKED OUT ON KOOKOO), KOOKOO(UNCONSCIOUS, CUDDLING DOZER), REAPER
-
-going to lunch, ily dani :3
-- TWO TIME
+bagel, you there?
