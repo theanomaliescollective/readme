@@ -1,1 +1,1 @@
-# BAGEL OR DANI JOIN THIS DAMNIT </3
+write in this, bagel
