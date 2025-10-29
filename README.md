@@ -1,5 +1,3 @@
-## F: DOZER - COF: KOOKOO, REAPER
-
-,,, i should just get builder huh..
-
-🙃
+GUYS
+## OH MY GOD
+### ITS HARD ENOUGH BUILDERS CONFUSED
