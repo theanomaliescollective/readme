@@ -1,4 +1,3 @@
-DANINININININNI :D
+f(x)= 2x+6.
 
-
-what,,
+;-;
