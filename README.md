@@ -1,5 +1,3 @@
-GUYS
-## OH MY GOD
-### ITS HARD ENOUGH BUILDERS CONFUSED
+mmmm,, and he refuses to ask for help
 
 o h 😀
