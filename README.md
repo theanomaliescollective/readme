@@ -1,4 +1,10 @@
-dani im not even gonna lie to you we smell like fucking weed.
+we smell
 
-.............
-.......what
+like fucking
+
+weed
+
+because of the mother's
+
+old
+weed stash shit
