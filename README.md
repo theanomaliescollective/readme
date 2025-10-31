@@ -14,7 +14,7 @@ _Dani:_
 
 *Bagel and Co's front status:* F: Bagel {Host} - COF: N/A
 
-_Bagel & Co:_  **Yeahh, I'm hoping I can get a proper costume next year but don't know what more I'll really be doing** (--and yyeeaaahhhh i did)
+_Bagel & Co:_  1. how long is each period 2. probably just gonna shower while you're gone
 
 _Bagel & Co, COF:_ _ _
 
