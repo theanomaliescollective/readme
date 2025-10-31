@@ -10,7 +10,7 @@ _Ano & Co, second COF:_ _**Wha-**_
 
 /
 
-_Dani:..oof,,,
+_Dani:good luck, ig
 
 /
 
