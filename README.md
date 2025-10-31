@@ -2,7 +2,7 @@
 
 *Ano and Co's front status:* F: Andrew(Bad Things)  - COF: Reaper
 
-_Ano & Co:_ **we're gonna sleep this next period, stay awake please, we'll be back at 9:28(phys science, teacher sucks respectfully)**
+_Ano & Co:_ **exhausted, hhi**
 
 _Ano & Co, COF: _ssigh_
 
@@ -15,6 +15,7 @@ _Dani:_
 *Bagel and Co's front status:* F: Bagel {Host} - COF: N/A
 
 _Bagel & Co:_ ssshhhowered while y'all were gone
+
 _Bagel & Co, COF:_ _ _
 
 /
