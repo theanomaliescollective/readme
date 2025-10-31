@@ -14,7 +14,7 @@ _Dani:_
 
 *Bagel and Co's front status:* F: Bagel {Host} - COF: N/A
 
-_Bagel & Co:_ ssshhhowered while y'all were gone
+_Bagel & Co:_ ffair, I hope you rested okay though
 
 _Bagel & Co, COF:_ _ _
 
