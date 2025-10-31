@@ -1,12 +1,12 @@
 /
 
-*Ano and Co's front status:* F: Andrew(Bad Things)  - COF: Reaper, Blitzø
+*Ano and Co's front status:* F: Andrew(Bad Things)  - COF: Reaper, Ivan(.) 
 
-_Ano & Co:_ **,,,,,**
+_Ano & Co:_ **We have a Quiz.**
 
-_Ano & Co, COF:_ _fucking pissed off though, i cant eat without Van and Van isn't gonna front during school,,_
+_Ano & Co, COF:_ _mm.._
 
-_Ano & Co, second COF:_ _~~...~~_
+_Ano & Co, second COF:_ _**Wha-**_
 
 /
 
