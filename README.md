@@ -12,7 +12,7 @@ _Ano & Co, second COF:_ _**,,,,,**_
 
 /
 
-_Dani: :D
+_Dani: no, they're not
 
 /
 
