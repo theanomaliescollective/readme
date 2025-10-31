@@ -12,6 +12,6 @@ Dani:
 
 *Bagel and Co's front status:* F: Bagel {Host} - COF: N/A
 
-Bagel & Co:
+Bagel & Co: _You havin' fun with that? /lh /ssilly_
 
 /
