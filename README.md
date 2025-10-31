@@ -12,9 +12,9 @@ _Dani:_
 
 /
 
-*Bagel and Co's front status:* F: Bagel {Host} - COF: N/A
+*Bagel and Co's front status:* F: Bagel {Host} - COF: {...}
 
-_Bagel & Co:_ ffair, I hope you rested okay though
+_Bagel & Co:_ oh yyip!!
 
 _Bagel & Co, COF:_ _ _
 
