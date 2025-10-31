@@ -2,9 +2,9 @@
 
 *Ano and Co's front status:* F: Andrew(Bad Things)  - COF: Reaper
 
-_Ano & Co:_ **That's unfortunate :(**
+_Ano & Co:_ **we're gonna sleep this next period, stay awake please, we'll be back at 9:28(phys science, teacher sucks respectfully)**
 
-_Ano & Co, COF:_ _Have you seen Andrew's read me + profile?_
+_Ano & Co, COF: _ssigh_
 
 /
 
