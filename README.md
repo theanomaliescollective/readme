@@ -12,7 +12,7 @@ _Ano & Co, second COF:_ _**,,,,,**_
 
 /
 
-_Dani:good luck, ig
+_Dani::D
 
 /
 
