@@ -4,6 +4,6 @@ ANO&CO'S LINE: _?? is.. that an insult..?_
 
 DANI'S LINE:
 
-(BAGEL&CO'S FRONT LINE) F:
+(BAGEL&CO'S FRONT LINE) F: Bagel {host}
 
-BAGEL&CO'S LINE: oh there you go making sense
+BAGEL&CO'S LINE: nah it's just worded like one lole (thank you for setting it up this way)
