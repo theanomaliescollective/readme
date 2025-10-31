@@ -2,11 +2,11 @@
 
 *Ano and Co's front status:* F: Andrew(Bad Things)  - COF: Reaper, Blitzø
 
-_Ano & Co:_ **??**
+_Ano & Co:_ **,,,,,**
 
-_Ano & Co, COF:_ _o yo what_
+_Ano & Co, COF:_ _to be frank i HAD been talking about his series earlier, ig hes a bit delayed ;-;'_
 
-_Ano & Co, second COF:_ 
+_Ano & Co, second COF:_ _~~?~~_
 
 /
 
