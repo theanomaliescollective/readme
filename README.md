@@ -10,7 +10,7 @@ _Ano & Co, second COF:_ _~~?~~_
 
 /
 
-_Dani:oh, wow, he came out of nowhere
+_Dani:..ah
 
 /
 
