@@ -2,9 +2,9 @@
 
 *Ano and Co's front status:* F: Andrew(Bad Things)  - COF: Reaper
 
-_Ano & Co:_ **How're you? :P**
+_Ano & Co:_ **,,,**
 
-_Ano & Co, COF:_ _VERGE OF CRASHOUT_
+_Ano & Co, COF:_ _ACTUALLY TWEAKIN DUDE_
 
 /
 
