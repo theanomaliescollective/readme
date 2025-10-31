@@ -2,7 +2,7 @@
 
 *Ano and Co's front status:* F: Andrew(Bad Things)  - COF:  N/A
 
-Ano & Co: _Kinda. We were just given pancakes shaped as pumpkins w/dyed batter and etc_
+Ano & Co: _It was REALLY, REALLY, good._
 
 /
 
