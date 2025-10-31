@@ -14,8 +14,7 @@ _Dani:_
 
 *Bagel and Co's front status:* F: Bagel {Host} - COF: N/A
 
-_Bagel & Co:_  1. ~~how long is each period~~NNEVERMIND i'm sleep deprived 2. probably just gonna shower while you're gone
-
+_Bagel & Co:_ ssshhhowered while y'all were gone
 _Bagel & Co, COF:_ _ _
 
 /
