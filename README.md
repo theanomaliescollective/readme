@@ -4,9 +4,9 @@
 
 _Ano & Co:_ **,,,,,**
 
-_Ano & Co, COF:_ _to be frank i HAD been talking about his series earlier, ig hes a bit delayed ;-;'_
+_Ano & Co, COF:_ _fucking pissed off though, i cant eat without Van and Van isn't gonna front during school,,_
 
-_Ano & Co, second COF:_ _~~?~~_
+_Ano & Co, second COF:_ _~~...~~_
 
 /
 
