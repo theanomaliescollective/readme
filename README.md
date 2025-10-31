@@ -1,6 +1,6 @@
 ## F:ANDREW (BAD THINGS)
 
-ANO&CO'S LINE: yeah i'd say that's a fair reason
+ANO&CO'S LINE: _?? is.. that an insult..?_
 
 DANI'S LINE:
 
