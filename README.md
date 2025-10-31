@@ -1,8 +1,10 @@
 (ANO&CO'S FRONT LINE) F: ANDREW(BAD THINGS)
 
-ANO&CO'S LINE: _?? is.. that an insult..?_
+ANO&CO'S LINE: _oh.. I see._
+
 
 DANI'S LINE:
+
 
 (BAGEL&CO'S FRONT LINE) F: Bagel {Host}
 
