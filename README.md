@@ -14,7 +14,7 @@ _Dani:_
 
 *Bagel and Co's front status:* F: Bagel {Host} - COF: N/A
 
-_Bagel & Co:_  **joyous occasion!! I'm a little sad i didn't get. really much of anything to do for halloween this year (this is standard for me atp) but i'm ppprobably gonna be going and buying candy tomorrow to make up for it :3**
+_Bagel & Co:_  **Yeahh, I'm hoping I can get a proper costume next year but don't know what more I'll really be doing** (--and yyeeaaahhhh i did)
 
 _Bagel & Co, COF:_ _ _
 
