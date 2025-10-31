@@ -1,13 +1,17 @@
-(ANO&CO'S FRONT LINE) F: ANDREW(BAD THINGS)
+/
 
-ANO&CO'S LINE: _oh.. I see._
+*Ano and Co's front status:* F: Andrew(Bad Things)  - COF:  N/A
 
--
+Ano & Co: _Oh.. I see._
 
-DANI'S LINE:
+/
 
--
+Dani: 
 
-(BAGEL&CO'S FRONT LINE) F: Bagel {Host}
+/
 
-BAGEL&CO'S LINE: nah it's just worded like one lole (thank you for setting it up this way)
+*Bagel and Co's front status:* F: Bagel {Host} - COF: N/A
+
+Bagel & Co:
+
+/
