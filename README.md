@@ -2,9 +2,9 @@
 
 *Ano and Co's front status:* F: Andrew(Bad Things)  - COF: Reaper
 
-_Ano & Co:_ **exhausted, hhi**
+_Ano & Co:_ **got wokeup for pancakes(i'm not complaining.)**
 
-_Ano & Co, COF: _ssigh_
+_Ano & Co, COF:_ _ssigh_
 
 /
 
